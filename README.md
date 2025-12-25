@@ -1,2 +1,1 @@
-[<img width="1144" height="694" alt="image" src="https://github.com/user-attachments/assets/d297b352-dd50-4d38-aab5-ff26da5ad44f" />
-](https://app.eraser.io/workspace/mYgvUXAJ1Y55rOm2agvb?elements=ef1BhMpYJhJ1dKQUl01-mw)
+<img width="1015" height="647" alt="image" src="https://github.com/user-attachments/assets/cd120485-31b2-4ba0-8292-76b72bd9da05" />
